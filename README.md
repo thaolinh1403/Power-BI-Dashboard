@@ -16,6 +16,3 @@
 ## Users Score
 ![image](https://github.com/user-attachments/assets/f3d39951-647d-41b6-bdf7-832b662ed106)
 
-
-![image](https://github.com/user-attachments/assets/43e83ebc-48be-4e15-a2e7-94b192201180)
-
